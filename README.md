@@ -1,1 +1,1 @@
-# dekopinda-magelang
+# dekopinda-karanganyar
